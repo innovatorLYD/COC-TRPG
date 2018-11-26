@@ -5,7 +5,13 @@
 
 文件夹里面的“调查员核心规则书”也比较重要，推荐事先阅读
 
-##  一些有用的链接
+## 特别推荐看的跑团实况
+
+原创剧本，失落的黑莱尔
+
+https://www.bilibili.com/video/av12942981
+
+## 别的有用的链接
 克苏鲁跑团的简介 https://www.zhihu.com/question/39497334
 https://www.bilibili.com/read/cv743182
 
