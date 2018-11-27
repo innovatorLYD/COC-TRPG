@@ -11,6 +11,10 @@
 
 https://www.bilibili.com/video/av12942981
 
+达克夏尔的魔女（更新中）
+
+https://www.bilibili.com/video/av36839000
+
 ## 别的有用的链接
 克苏鲁跑团的简介 https://www.zhihu.com/question/39497334
 https://www.bilibili.com/read/cv743182
