@@ -11,7 +11,7 @@
 
 https://www.bilibili.com/video/av12942981
 
-达克夏尔的魔女（更新中）
+达克夏尔的魔女（带RPGmaker的大制作，更新中）
 
 https://www.bilibili.com/video/av36839000
 
